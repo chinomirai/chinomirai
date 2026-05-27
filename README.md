@@ -2,7 +2,7 @@
 <div align="center">
 
 ## **高性能 AI！！！**
-</div>.
+</div>
 
 ### 🌸 自我介绍
 
